@@ -1,4 +1,3 @@
-Mini Project
 Connor Oman
 IMPORTANT INFO:
 
